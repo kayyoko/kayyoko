@@ -10,8 +10,9 @@
 <br>
 <i> ꒰   ━━━━━━━━━━━━━━━━━━━━━━━━━━━━  ꒱ </i>
 
-![unotchoppedtwin](https://github.com/user-attachments/assets/c4efef12-627a-4892-b4c9-717c2100fdaa)
+<img src="https://files.catbox.moe/m8tgzp.png" />
 <br>
+
 [ata](https://kayyoko.atabook.org) 🍕 [prns page](https://en.pronouns.page/@kayyoko) 🍕 [straw (wip)](https://straw.page/)
 
 

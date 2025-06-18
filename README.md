@@ -37,9 +37,9 @@
 
 <br>
 
-<img src="https://files.catbox.moe/i3q4dx.png">
+<img src="https://files.catbox.moe/xriweq.png">
 
-jx1 is gonna ticlke kays and YOUR toes ouughgh you better runnn ouhhh you better run- king jas
+guys if you get a job i'll give you 3k robux just give me a pic of evidence & ur username (hit me up on discord w2i for details)
 
 </div>
 

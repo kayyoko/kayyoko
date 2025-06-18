@@ -37,9 +37,9 @@
 
 <br>
 
-<img src="https://files.catbox.moe/xriweq.png">
+<img src="https://files.catbox.moe/0m7o0t.png">
 
-guys if you get a job i'll give you 3k robux just give me a pic of evidence & ur username (hit me up on discord w2i for details)
+i love feet ill cashapp 400 usd per pic, w2i for info!
 
 </div>
 

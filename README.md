@@ -39,7 +39,6 @@
 
 <img src="https://files.catbox.moe/0m7o0t.png">
 
-i love feet ill cashapp 400 usd per pic, w2i for info!
 
 </div>
 

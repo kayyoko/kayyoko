@@ -38,7 +38,7 @@
 <br>
 
 <img src="https://files.catbox.moe/0m7o0t.png">
-
+@chanceglazer took over my github
 
 </div>
 

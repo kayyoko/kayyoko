@@ -37,21 +37,9 @@
 
 <br>
 
-![blinkiesCafe-F7](https://github.com/user-attachments/assets/845457bc-c18e-47c5-8a2c-3a20160fbf3f)
-![blinkiesCafe-YK](https://github.com/user-attachments/assets/d48d4354-1b1c-4e44-b310-487ada27b57d)
-![blinkiesCafe-Ix](https://github.com/user-attachments/assets/65e5e52d-8d7f-4e59-bcc3-964b53b44ccc)
+<img src="https://files.catbox.moe/i3q4dx.png">
 
-![blinkiesCafe-F8](https://github.com/user-attachments/assets/d319ddc4-8031-410f-8e09-a271656361a8)
-![blinkiesCafe-wA](https://github.com/user-attachments/assets/a7ef3e4e-b812-4c7e-8f43-64a530cb0eb2)
-![blinkiesCafe-2c](https://github.com/user-attachments/assets/4059d48d-1a0a-4434-b87b-d629974d56d5)
-
-<br>
-
-
-
-
-
-![elliotsfatassnumbertwo](https://github.com/user-attachments/assets/dff4c389-0fc0-4a3b-b889-8589fda6d551)
+jx1 is gonna ticlke kays and YOUR toes ouughgh you better runnn ouhhh you better run- king jas
 
 </div>
 

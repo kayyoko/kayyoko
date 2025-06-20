@@ -1,5 +1,5 @@
 <div align="center">
 
-  ![](https://postimg.cc/2VN4BhRC)
+  ![](https://i.postimg.cc/PrPK9QSv/IMG-7494.png)
   
   ![](https://files.catbox.moe/syyhzf.png)

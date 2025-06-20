@@ -1,3 +1,3 @@
 </br> ![](https://files.catbox.moe/syyhzf.png)
-</br> !(fans)</br> ![](https://komarev.com/ghpvc/?username=kayyoko&color=7a7a7a&style=flat-square&label=visitors)
+</br> ![](https://komarev.com/ghpvc/?username=kayyoko&color=7a7a7a&style=flat-square&label=visitors)
 </br> [PRONOUNS](https://en.pronouns.page/@kayyoko)  [ATABOOK](https://kayyoko.atabook.org)  [RENTRY](https://rentry.co/dreamily)

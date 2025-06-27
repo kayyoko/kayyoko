@@ -8,6 +8,4 @@
 
 ![](https://i.postimg.cc/xdfn8pYg/IMG-9888.png)
 
-``dont tell kay im hereo r shes gonna actually fukciunh behead me - @chanceglazer 6/23/2025 3:35``
-
 </div>

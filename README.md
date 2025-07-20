@@ -2,7 +2,7 @@
 
   ![](https://dividers.crd.co/assets/images/gallery04/51710205.png?v=05d33f91)
 
-  ![](https://i.pinimg.com/736x/d5/88/ac/d588ac4c3f3e70fccd6ce5fd51c165aa.jpg)
+  ![](https://files.catbox.moe/69fst9.png)
 <br> ![](https://i.postimg.cc/7ZrKtpjN/12-D8-A71-A-30-CE-4-ED9-8807-D9-DCA9-D33-DFE.gif) [ATABOOK](https://kayyoko.atabook.org) ⟢ [PRONOUNS](https://en.pronouns.page/@kayyoko) ![](https://i.postimg.cc/wB60gDqy/7-FDB4184-90-A0-46-C6-8612-7498-E9-C35-A2-A.gif)
 
 ![](https://i.postimg.cc/xdfn8pYg/IMG-9888.png)

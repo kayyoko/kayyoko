@@ -4,4 +4,4 @@
 
 </div> 
 
-[ata](https://kayyoko.atabook.org) ⭑ prns (https://en.pronouns.page/@kayyoko)
+[ata](https://kayyoko.atabook.org) ⭑ [prns](https://en.pronouns.page/@kayyoko)

@@ -1,6 +1,6 @@
 <div align="center"> 
 
-![Label](https://img.shields.io/badge/note-I'm%20the%20most%20superficial%20man%20on%20Earth-fffff)
+![Label](https://img.shields.io/badge/note-I'm%20the%20most%20superficial%20man%20on%20Earth-ffffff)
 
 <img src="https://files.catbox.moe/zdowt7.png" width="200" height="300" />
 

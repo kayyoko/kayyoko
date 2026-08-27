@@ -28,7 +28,7 @@
 
 <p align="center">
   
-  [art](https://x.com/blueskyuup/status/2071191836270714976?s=46) [credit](https://x.com/koven_dumb/status/2092265947083985073?s=46) [here](https://x.com/kyedust/status/2092524403192205557?s=46) ${\text{\color{#B3F5F1}꒰ఎ ♥︎ ໒꒱}}$ [made by jas](github.com/necbr0mancer)
+  [art](https://x.com/blueskyuup/status/2071191836270714976?s=46) [credit](https://x.com/koven_dumb/status/2092265947083985073?s=46) [here](https://x.com/kyedust/status/2092524403192205557?s=46) ${\text{\color{#B3F5F1}꒰ఎ ♥︎ ໒꒱}}$ [made by jas](https://github.com/NECBR0MANCER)
 </p>
 <br>
 <br>

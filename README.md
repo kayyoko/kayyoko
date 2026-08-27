@@ -20,7 +20,7 @@
 <br>
 <br>
 
-<a href="https://kayyoko.atabook.org/"><img width="239" height="104" src="https://i.postimg.cc/MHW1wh0f/ata.png" /></a>　　<img width="239" height="104" src="https://i.postimg.cc/4ySy0MWG/straw.png" />
+<a href="https://kayyoko.atabook.org/"><img width="221" height="96" src="https://i.postimg.cc/MHW1wh0f/ata.png" /></a>　　<img width="221" height="96" src="https://i.postimg.cc/4ySy0MWG/straw.png" />
 
 <br>
 <br>

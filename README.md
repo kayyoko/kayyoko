@@ -12,8 +12,6 @@
 
 <br>
 <br>
-<br>
-<br>
    <p align="center"> ${\text{\color{#E2BE42}ଘ kay　　「 <15 iwvec 」　　any／all prns　　⩊⩊　　she pref　}}$ <img src="https://i.postimg.cc/Y2yHYVYK/y81.gif" />
  <p align="center"> ${\text{\color{#E0642F}𑁬˘　ⁿʳ.¹ sword fan　　 ⁿʳ.² swocket fan　𝄢⁾　　　w2i　⨳　sign ata}}$
  <p align="center"> <img src="https://i.postimg.cc/7YKBYRL6/n1z0u3.gif" /> ${\text{\color{#D8371F}﹔basic dni　　　i block　f̠̠r̠̠e̠̠e̠̠l̠̠y̠　 　　　‿‿　　 sign strawpage ！}}$
@@ -21,13 +19,9 @@
 <br>
 <br>
 <br>
-<br>
-<br>
 
 <a href="https://kayyoko.atabook.org/"><img width="239" height="104" src="https://i.postimg.cc/MHW1wh0f/ata.png" /></a>　　<img width="239" height="104" src="https://i.postimg.cc/4ySy0MWG/straw.png" />
 
-<br>
-<br>
 <br>
 <br>
 <br>

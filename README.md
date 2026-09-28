@@ -13,7 +13,7 @@
 <br>
 <br>
    <p align="center"> ${\text{\color{#E2BE42}ଘ kay　　「 <15 iwvec 」　　any／all prns　　⩊⩊　　she pref　}}$ <img src="https://i.postimg.cc/Y2yHYVYK/y81.gif" />
- <p align="center"> ${\text{\color{#E0642F}𑁬˘　　 big swocket fan i love them :3　𝄢⁾　　　w2i　⨳　sign ata}}$
+ <p align="center"> ${\text{\color{#E0642F}𑁬˘　　 big swocket fan i love them :3　𝄢⁾　　　w2i　}}$
  <p align="center"> <img src="https://i.postimg.cc/7YKBYRL6/n1z0u3.gif" /> ${\text{\color{#D8371F}﹔basic dni　　　i block　f̠̠r̠̠e̠̠e̠̠l̠̠y̠　 　　　‿‿　　 sign ata ！}}$
 <br>
 <br>
